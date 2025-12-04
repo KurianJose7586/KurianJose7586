@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kurianjoseoff@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14ndv3unYMRwdbI_ICZDfGnHDJ_IpBm9y/view?usp=drive_link](https://drive.google.com/file/d/14ndv3unYMRwdbI_ICZDfGnHDJ_IpBm9y/view?usp=drive_link)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/17w6Nb3ZhpKXEjF34FtYWm9hqbgSuJUwC/view?usp=drive_link)
 
 
 
